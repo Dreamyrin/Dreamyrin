@@ -1,5 +1,5 @@
 ## Hi there 👋
-<img IMG_7626.png>
+
 <!--
 **Dreamyrin/Dreamyrin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
