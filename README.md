@@ -4,7 +4,9 @@
   “Only after having met you did I rediscover that it's such a simple thing to be happy.”
 
 <div> Hello! Thanks for looking at my profile 𐔌՞꜆. ̫.꜀՞𐦯
-Please check my [strawpage](https://dreamyrin.straw.page/)) for more info!
+
+  
+Please check my [strawpage](https://dreamyrin.straw.page/) for more info!
 
 <div></div>
 
