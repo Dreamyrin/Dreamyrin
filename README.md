@@ -15,7 +15,7 @@ Please check my [strawpage](https://dreamyrin.straw.page/) if you want to know m
 
 </h4>
   
-⊹₊⟡⋆<img alt="welcome" src="https://komarev.com/ghpvc/?username=Dreamyrin&label=welcome&color=880808" /> ᯓ★ˎˊ˗
+⊹₊⟡⋆<img alt="welcome" src="https://komarev.com/ghpvc/?username=Dreamyrin&label=visits!&color=880808" /> ᯓ★ˎˊ˗
 
 
 
