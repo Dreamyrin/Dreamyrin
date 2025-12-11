@@ -2,7 +2,7 @@
 <img width="100%" height="10%" alt="IMG_7626" src="https://github.com/Dreamyrin/Dreamyrin/blob/main/IMG_7626.jpeg" /> 
 <h1>⋆. 𐙚˚࿔ Dreamyrin 𝜗𝜚˚⋆</h1>
 <ib>“Only after having met you did I rediscover that it's such a simple thing to be happy.”</ib> 
-<img width="100%" height="10%" alt="IMG_7631" src="https://github.com/Dreamyrin/Dreamyrin/blob/main/IMG_7631.jpeg" /> 
+<img width="100%" height="10%" alt="IMG_7631" src="https://github.com/Dreamyrin/Dreamyrin/blob/main/IMG_7637.png" /> 
 
 <div> Hello! Thanks for looking at my profile 𐔌՞꜆. ̫.꜀՞𐦯
 
