@@ -1,5 +1,5 @@
 <div align="center">
-<img width="100%" height="10%" alt="IMG_7626" src="https://github.com/Dreamyrin/Dreamyrin/blob/main/IMG_7638.png" /> 
+<img width="100%" height="10%" alt="rinimagen" src="https://github.com/Dreamyrin/Dreamyrin/blob/main/rinimagen.png" /> 
 <h1>⋆. 𐙚˚࿔ Dreamyrin 𝜗𝜚˚⋆</h1>
 <ib>“Only after having met you did I rediscover that it's such a simple thing to be happy.”</ib> 
 <img width="100%" height="10%" alt="IMG_7631" src="https://github.com/Dreamyrin/Dreamyrin/blob/main/IMG_7640.png" /> 
